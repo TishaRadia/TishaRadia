@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TishaRadiaI'm passionate about web development
+- 🌱 I'm currently diving into the world of BCA (Bachelor of Computer Applications), expanding my knowledge and skills in the field.
+- 💼 I'm eager to collaborate on exciting website development projects, so if you're looking for a teammate, count me in!.
+- 📫 Feel free to reach out to me at tisharadia987@gmail.com.
+- ⚡ I absolutely love exploring new places and capturing breathtaking views with my camera!
